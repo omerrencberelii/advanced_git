@@ -4,3 +4,7 @@
 * Diğer bir açıklama eklendi
 
 * Daha da fazla açıklama
+* Daha da fazla açıklama
+* Daha da fazla açıklama
+* Daha da fazla açıklama
+* Daha da fazla açıklama
