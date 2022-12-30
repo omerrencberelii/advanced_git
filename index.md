@@ -7,4 +7,4 @@
 * Daha da fazla açıklama
 * Daha da fazla açıklama
 * Daha da fazla açıklama
-* Daha da fazla açıklama
+* Daha da fazla açıklamagggg
